@@ -1,1 +1,1 @@
-# cybersecurity
+Cybersecurity is fun to study
